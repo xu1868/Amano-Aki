@@ -10,4 +10,4 @@
 
 - 🐈 Love cats but too busy to own one... nyaa!
 
-- 🤔 My bio is an extract of lyric of [宵加減テトラゴン](https://www.youtube.com/watch?v=PzVy9FPz2Rk), which roughly translates to `Roses for deserts, love for stars / and let me put the bouquet in the street corner'.
+- 🤔 My bio is an extract of lyric of [宵加減テトラゴン](https://www.youtube.com/watch?v=PzVy9FPz2Rk), which roughly translates to `Roses for deserts, love for stars / and let me put the bouquet in the street corner'. Avatar is from [ぼっち・ざ・ろっく！](https://en.wikipedia.org/wiki/Bocchi_the_Rock!).
